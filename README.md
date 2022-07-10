@@ -1,6 +1,6 @@
 ### hi, i'm xola. /ˈkɔːlə/
 
-an appreciator of creative arts and tech enthusiast from South Africa. 
+an appreciator of the creative arts and tech enthusiast from South Africa. 
 
 
 <!--
